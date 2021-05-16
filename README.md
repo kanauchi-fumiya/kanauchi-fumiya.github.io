@@ -1,1 +1,0 @@
-# kanauchi-fumiya.github.io
